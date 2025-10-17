@@ -1,5 +1,3 @@
-# Joshua-Twigg-Portfolio-Of-Evidence-Combined
-
 # Project Presentation 3
 
 # Joshua-Twigg-Portfolio-Of-Evidence - October 2025
